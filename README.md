@@ -158,4 +158,29 @@ Sir provided us with helpfull and usefull information about the topic related wi
 
 ## Day 7
 
-## 9.30 am to 10.30 am - 
+## 9.30 am to 10.30 am - Expert lecture
+Dr.Amit Kamra ( Incharge-DMC )-Auditorium.  
+Digital Marketing Club introduced by sir and volunteer students with the help of the meaningfull and usefull presentation which help the students to explore more with digital club and help to learn more in the field of the digital marketing with the new AI tools which comes with new technologies.
+
+
+![WhatsApp Image 2025-08-08 at 22 20 18_59c516ad](https://github.com/user-attachments/assets/dcca0153-f18e-493f-bf61-11843f669ed9)
+
+
+## 10.30 am to 11.30 am - Expert lecture
+Dr.Parminder Singh ( Dean-Student Welfare )-Auditorium  
+The lecture given by the sir is very usefull and informative for us due it releated to that topics which is really important for during this four year journey by become family member of GNDEC. It is very helpfull for those students who needed the financial help.
+
+## 11.30 am to 12.30 pm - Expert lecture
+Dr.Randir Singh ( Conduct of Examinations )-Auditorium  
+Sir give the overview of the examination point of view that how the exams are conducted by the college during our this wonderful journey, so sir give informaion about circumstances and limitation on the exams imposed by the college that a student with 75 percent or less than 75 percent attendence will not considered or unable to give exams.
+
+## 1.30 pm to 2.30 pm
+Chemistry lecture by Prof.Rajvir Kaur  
+Mam give basics information about the college other activities such as sports and clubs, mam also done the discussion on the Swayam portal for enhancing the skills and knowledge about any languages which is beneficial for us.
+
+### Last but not least
+
+## 2.30 pm to 3.30 pm - P2P lecture
+P2P lecture conducted by the seniors to continuthe process of the learning the basics of the programming languages such as C++.
+
+---
