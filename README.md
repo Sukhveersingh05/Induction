@@ -2,7 +2,7 @@
 
 # Day 1
 
-8.30 am to 9.30 am
+8.30 am to 9.30 am.
 The day began with path and kirtan at college Gurudwara Sahib, blessing the new beginnings of our future tech leaders, which can help us throughout the 4 years journey.
 
 9.30 am to 10.00 am
