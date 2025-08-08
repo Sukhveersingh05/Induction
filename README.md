@@ -1,11 +1,17 @@
 ## Induction
 
+
+![WhatsApp Image 2025-08-08 at 20 45 47_7ca3c408](https://github.com/user-attachments/assets/cdccde6f-f719-4208-9eb0-fb9179c59a1d)
+
+
 ## Day 1
 
 ## 8.30 am to 9.30 am
 The day began with path and kirtan at college Gurudwara Sahib, blessing the new beginnings of our future tech leaders, which can help us throughout the 4 years journey.
 
+
 ![WhatsApp Image 2025-08-08 at 20 45 48_a3b949dd (2)](https://github.com/user-attachments/assets/6d93bad9-b8c8-477a-8f3c-891aed9500c6)
+
 
 ## 9.30 am to 10.00 am
 We were getting refresh with tea and snacks which was provided by the college management, after the successfully kirtan and this tea, snacks arranged at hostel number 2.
@@ -21,6 +27,10 @@ Principal of college – Dr. Sehijpal Singh
 Head of Department (Applied Science) – Dr. Harpreet Kaur Grewal  
 Dean of Academics – Dr. Akshay Girdhar  
 Dean of Student Welfare – Dr. Parminder Singh.
+
+
+![WhatsApp Image 2025-08-08 at 20 45 47_438ae8df](https://github.com/user-attachments/assets/735692e1-25e8-47ca-9151-e9332c5cf69b)
+
 
 After the speech of college Administration, Our guests of Honour were introduced.
 
@@ -47,6 +57,10 @@ After that, a proficiency test of Mathematics was conducted, including some basi
 Auditorium – Presentation of Satya Scholarship Program
 In that presentation, the workers of Nehru Sidhant Kender Trust provided us importance of their fellowship program.
 
+
+![WhatsApp Image 2025-08-08 at 21 32 51_e2c6e925](https://github.com/user-attachments/assets/cd56b10d-9345-4941-95d4-691a718d6367)
+
+
 ## 1.00 pm to 2.00 pm – First Lecture
 Our first lecture was on:  
 “Food: A pivotal role in students’ overall wellness” by Dr. Arashdeep Singh (Food Department).
@@ -67,6 +81,10 @@ Provided us useful and simple knowledge of science, mathematics, and life throug
 ### Chief Guest: 
 S. Gurcharan Singh Grewal  
 Encouraged students with his motivating words.
+
+
+![WhatsApp Image 2025-08-08 at 20 45 48_0566f5c3](https://github.com/user-attachments/assets/193bb95f-60fa-4b3e-ae08-ddba83cbf7e1)
+
 
 ## 11.00 am to 1.00 pm – Expert Lecture
 Dr. Priya Darshani Madam (UHV)  
@@ -90,6 +108,10 @@ They give us greatfull lecture on basic terms used in coding and helpfull for us
 ## 12.30 pm to 2.30 pm – Expert Lecture
 Dr. Priya Darshani Madam ( UHV - Auditorium )  
 A wonderfull lectre given by mam on the Universal Human Values which give our mind shape to being always happy and give positive approach to every situations. Enriched our young minds with clarity, personal growth, and self-reflection.
+
+
+![WhatsApp Image 2025-08-08 at 20 45 48_16a2a588](https://github.com/user-attachments/assets/ae0e5f28-bf71-4039-aa66-14966f618f6d)
+
 
 ## 2.30 pm to 3.30 pm
 Session by the Causmic Club ( Auditorium )  
@@ -116,5 +138,24 @@ Discussiong some topics of DC circuits such as EMF, Current, Relation between ch
 ---
 
 ## Day 6
+
+## 9.30 am to 10.30 am - Expert Lecture
+BEEE LEcture, Prof.Ranvir Kaur (EE)  
+Further information topics of DC circuits Temperature, Resistivity, Conductance, Capacitor, and Ohm Law.
+
+## 10.30 am to 11.30 am
+P2P lecture conducted by the seniors.  
+It is the perfect lecture for the basics of the C++ programming language given by our seniors of GNDEC which can help us to learn the basics of the code programming and help us to understand more clearly during the lectures given by the professors on the other usefull languages.
+
+## 1.00 pm to 4.00 pm - Expert lecture
+Dr.Arvind Dhingra ( Director STEP and incharge-TAC )  
+
+### Auditorium  
+
+Sir provided us with helpfull and usefull information about the topic related with the Swayam portal for the study and enhance the learning within the 4 years of our journey at Gndec, that is the best thing that we can learn other more languages and usefull things that are not considered in our department but unless important for our professional or career path.
+
+---
+
+## Day 7
 
 ## 9.30 am to 10.30 am - 
