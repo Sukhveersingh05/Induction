@@ -2,25 +2,25 @@
 
 # Day 1
 
-8.30 am to 9.30 am.
+# 8.30 am to 9.30 am
 The day began with path and kirtan at college Gurudwara Sahib, blessing the new beginnings of our future tech leaders, which can help us throughout the 4 years journey.
 
-9.30 am to 10.00 am
+# 9.30 am to 10.00 am
 We were getting refresh with tea and snacks which was provided by the college management, after the successfully kirtan and this tea, snacks arranged at hostel number 2.
 
-10.00 onwards
+# 10.00 onwards
 Students are asked to collect their welcome kit outside the auditorium from registration desks. Students were introduced to the college's legacy through a college adaptation presentation.
 In the presentation, college graduated marvellous alumni – Sangam Arora and Arshpreet Singh, sharing how dedication and involvement beyond the classroom shaped their successful journeys.
 
-Visionary addresses were given by:
-# Principal of college – Dr. Sehijpal Singh
-# Head of Department (Applied Science) – Dr. Harpreet Kaur Grewal
-# Dean of Academics – Dr. Akshay Girdhar
-# Dean of Student Welfare – Dr. Parminder Singh
+## Visionary addresses were given by:
+Principal of college – Dr. Sehijpal Singh
+Head of Department (Applied Science) – Dr. Harpreet Kaur Grewal
+Dean of Academics – Dr. Akshay Girdhar
+Dean of Student Welfare – Dr. Parminder Singh
 
 Special thanks to our Guests of Honour:
-# Er. Ravinder Garg – Chief Engineer, Municipal Corporation, Ludhiana
-# Er. Rakesh Kumar – GNDEC Alumnus (Batch 1991), Assistant Deputy Commissioner
+Er. Ravinder Garg – Chief Engineer, Municipal Corporation, Ludhiana
+Er. Rakesh Kumar – GNDEC Alumnus (Batch 1991), Assistant Deputy Commissioner
 They shared their inspiring journeys and encouraged students to grow with values, skills, and vision.
 
 Conclusion of the day
