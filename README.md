@@ -5,8 +5,7 @@
 ## 8.30 am to 9.30 am
 The day began with path and kirtan at college Gurudwara Sahib, blessing the new beginnings of our future tech leaders, which can help us throughout the 4 years journey.
 
-![WhatsApp Image 2025-08-08 at 20 45 48_a3b949dd](https://github.com/user-attachments/assets/3f637417-ab4c-4528-b53f-0710928ee9a6)
-
+![WhatsApp Image 2025-08-08 at 20 45 48_a3b949dd (2)](https://github.com/user-attachments/assets/6d93bad9-b8c8-477a-8f3c-891aed9500c6)
 
 ## 9.30 am to 10.00 am
 We were getting refresh with tea and snacks which was provided by the college management, after the successfully kirtan and this tea, snacks arranged at hostel number 2.
