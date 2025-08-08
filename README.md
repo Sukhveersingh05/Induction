@@ -99,7 +99,8 @@ Which give information on extra curriculum activities in the college.
 
 ## 9.30 am to 10.30 am - English Lecture
 Room number (108)  
-Prof.Aastik give information on self introduction, best way to introduce ourself, and something important and interesting factors.
+Prof.Aastik  
+Sir give information on self introduction, best way to introduce ourself, and something important and interesting factors.
 
 ## 10.30 am to 11.30 am - Maths Lecture
 (ME seminar hall) Prof.Rajbir Kaur.  
