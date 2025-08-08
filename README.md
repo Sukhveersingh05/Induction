@@ -1,14 +1,14 @@
 ## Induction
 
-# Day 1
+## Day 1
 
-# 8.30 am to 9.30 am
+## 8.30 am to 9.30 am
 The day began with path and kirtan at college Gurudwara Sahib, blessing the new beginnings of our future tech leaders, which can help us throughout the 4 years journey.
 
-# 9.30 am to 10.00 am
+## 9.30 am to 10.00 am
 We were getting refresh with tea and snacks which was provided by the college management, after the successfully kirtan and this tea, snacks arranged at hostel number 2.
 
-# 10.00 onwards
+## 10.00 onwards
 Students are asked to collect their welcome kit outside the auditorium from registration desks. Students were introduced to the college's legacy through a college adaptation presentation.
 In the presentation, college graduated marvellous alumni – Sangam Arora and Arshpreet Singh, sharing how dedication and involvement beyond the classroom shaped their successful journeys.
 
