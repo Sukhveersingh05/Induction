@@ -13,7 +13,7 @@ Students are asked to collect their welcome kit outside the auditorium from regi
 In the presentation, college graduated marvellous alumni – Sangam Arora and Arshpreet Singh, sharing how dedication and involvement beyond the classroom shaped their successful journeys.
 
 ### Visionary addresses were given by:
-Principal of college – Dr. Sehijpal Singh
+#### Principal of college – Dr. Sehijpal Singh
 Head of Department (Applied Science) – Dr. Harpreet Kaur Grewal
 Dean of Academics – Dr. Akshay Girdhar
 Dean of Student Welfare – Dr. Parminder Singh
