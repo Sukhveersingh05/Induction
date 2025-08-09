@@ -184,3 +184,32 @@ Mam give basics information about the college other activities such as sports an
 P2P lecture conducted by the seniors to continuthe process of the learning the basics of the programming languages such as C++.
 
 ---
+
+## Day 8
+
+## 9.00 am to 10.30 am - ID Card formation
+ID Caed formation - ( outside TCC seminar hall )  
+
+### Furthermore
+
+## 10.30 am to 12 Noon 
+English lecture - ( Room No. 106 )  
+Prof.Parneet Kaur  
+But due to miss communication man is not able to recieve the correct information about the lecture so that's why is not come to the lecture, then the lecture was handled by the physics Prof.
+
+### Last but not the least
+
+### Conclusion
+I want to thanks to all seniors and professor"s who arranged this induction program to give us guidance about the college and the other extra curriculum activities such as the different types of the clubs and support.  
+I also want to thanks to the chief guests that are involved and helped to completed this induction program.
+
+
+![WhatsApp Image 2025-08-08 at 20 45 51_a3f3387f](https://github.com/user-attachments/assets/10a43ae7-1549-4a0a-90de-ae347ae0047e)
+
+
+![WhatsApp Image 2025-08-08 at 20 45 48_0566f5c3](https://github.com/user-attachments/assets/e9496c5e-3f89-43e5-8dc3-ad57b8caa6fb)
+
+
+# Thanks!
+
+---
