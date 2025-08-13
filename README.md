@@ -204,9 +204,6 @@ I want to thanks to all seniors and professor"s who arranged this induction prog
 I also want to thanks to the chief guests that are involved and helped to completed this induction program.
 
 
-![WhatsApp Image 2025-08-08 at 20 45 51_a3f3387f](https://github.com/user-attachments/assets/10a43ae7-1549-4a0a-90de-ae347ae0047e)
-
-
 ![WhatsApp Image 2025-08-08 at 20 45 48_0566f5c3](https://github.com/user-attachments/assets/e9496c5e-3f89-43e5-8dc3-ad57b8caa6fb)
 
 
