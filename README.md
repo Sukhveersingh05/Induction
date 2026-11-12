@@ -1,4 +1,4 @@
-## Induction
+## Inductio
 
 
 ![WhatsApp Image 2025-08-08 at 20 45 47_7ca3c408](https://github.com/user-attachments/assets/cdccde6f-f719-4208-9eb0-fb9179c59a1d)
